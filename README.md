@@ -1,2 +1,0 @@
-# Abdulrhman
-About me
